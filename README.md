@@ -23,3 +23,10 @@ Benny Ricciardi of Weehawken earns a living writing about and betting on daily f
 What is a market. The Black Market (alcohol and drug prohibition). Supply and Demand. The One Child Rule in China. 
 
 People respond to incentives. 
+
+https://www.youtube.com/watch?v=vEb-XQz_Ibc https://www.youtube.com/watch?v=YFrAZhBffJ4
+China banning tutoring
+
+https://www.pbs.org/newshour/education/how-the-admissions-scandal-could-hurt-students-with-learning-disabilities
+How the admissions scandal could hurt students with learning disabilities
+
