@@ -13,3 +13,9 @@ https://www.reddit.com/r/options/comments/14h1ao3/comment/jp9uvuo/?utm_source=sh
 As for the value creation end, do you think insurance creates value? That's essentially what options are.
 
 https://www.reddit.com/r/investing/comments/1l0618/is_options_trading_a_zero_sum_game/
+
+https://www.youtube.com/watch?v=tsd3Zs-YhJ4
+
+Betting on sports is a full-time job for this N.J. man
+
+Benny Ricciardi of Weehawken earns a living writing about and betting on daily fantasy sports sites like FanDuel and Draft Kings. And while his wife works during the day he takes care of their three young sons. (Video by John Munson | NJ Advance Media for NJ.com)
