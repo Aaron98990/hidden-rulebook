@@ -20,4 +20,6 @@ Betting on sports is a full-time job for this N.J. man
 
 Benny Ricciardi of Weehawken earns a living writing about and betting on daily fantasy sports sites like FanDuel and Draft Kings. And while his wife works during the day he takes care of their three young sons. (Video by John Munson | NJ Advance Media for NJ.com)
 
-What is a market. The Black Market (alcohol and drug prohibition). Supply and Demand.
+What is a market. The Black Market (alcohol and drug prohibition). Supply and Demand. The One Child Rule in China. 
+
+People respond to incentives. 
