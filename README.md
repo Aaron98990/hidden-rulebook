@@ -9,3 +9,7 @@ With your job you think its safe and there is zero risk, but if you didn't' show
 The markets are risky but can be managed with certain strategies, but the problem is they think its a free for all, its not. There is structure and order and we have to behave accordingly.
 
 https://www.reddit.com/r/options/comments/14h1ao3/comment/jp9uvuo/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button
+
+As for the value creation end, do you think insurance creates value? That's essentially what options are.
+
+https://www.reddit.com/r/investing/comments/1l0618/is_options_trading_a_zero_sum_game/
